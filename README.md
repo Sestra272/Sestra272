@@ -11,6 +11,8 @@ Distinguersi in Finanza è facile. Basta fare le cose per bene e sei già divers
 
 Non s'importa"
 
+- ATH
+
 Portfolio is private. Serious inquiries only — reviewed in person, not shared remotely.
 
 
