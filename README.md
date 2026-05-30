@@ -1,5 +1,7 @@
 # Bonfire Lit 🔥
 
+*And suddenly, my dreams started chasing me.*
+
 Developer. Founder of LeveLUp. Creator of Blue.
 
 Supporter of PinkToX.
